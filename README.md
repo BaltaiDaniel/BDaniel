@@ -1,1 +1,1 @@
-[center]Keep coding👨🏽‍💻; nothing❌ to see here![/center]
+Keep coding👨🏽‍💻; nothing❌ to see here!
